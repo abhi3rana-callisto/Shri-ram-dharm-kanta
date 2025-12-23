@@ -1,1 +1,0 @@
-# Shri-ram-dharm-kanta
